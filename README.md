@@ -13,7 +13,7 @@ it is still in development but it has an armor set and tools, if you crack the m
 
 
 * ##### &#x09;   **PLEASE NOTIFY ME INSTANTLY!!!**
-* ##### &#x09;   **EAT A 52 BOMBOCLAT PUSWAGON CHICKEN 		   NUGGETS.**
+* ##### &#x09;   **EAT 52 BOMBOCLAT PUSWAGON CHICKEN NUGGETS.**
 * ##### &#x09;   **WARNING: YOUR DOG ESCAPED AND IS 	   	   BEHIND YOU.**
 
 
